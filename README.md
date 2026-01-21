@@ -1,0 +1,1 @@
+https://www.skyscanner.co.kr/transport/flights/sela/fuk/260410/260413/?adultsv2=1&cabinclass=economy&childrenv2=&ref=home&rtn=1&outboundaltsenabled=false&inboundaltsenabled=false&departure-times=0-720,840-1439&preferdirects=false#/results
